@@ -16,7 +16,7 @@ all other esteriotypes.
 So how do you tell a great guy from a jerk? I have a set of questions I like to use on interviews. They are very 
 unorthodox but I think good candidates really like it, while the bad ones start to make faces.
 
-## 1. Pets
+### 1. Pets
 
 I think the kind of pet says a lot about someone.
 
@@ -26,13 +26,21 @@ I think the kind of pet says a lot about someone.
 If not, ask which animal he/she would like to have as a pet. Personally, I like "cat people". Pets require a great
 deal of commitment - and the best employes are the ones who are able to commit.
 
-## 2. Superheros
+### 2. Superheros
 
  * If you could be a superhero, which one would you pick and why?
  
 A real geek will talk a lot here, and I would be suspicious of a candidate that is not into comics. Marvel and DC comics are big fanchises, and both seems to attract very distinct groups of personalities. I like to work with people that picks a Marvel character.
 
+## English Knowledge
 
+In Brazil people speaks Portuguese. The Portuguese language IT forums are filled with iliterate morons and information available in Portuguese tends to be of lower quality compared to sources in English. Over the years, I learned that the best predictor index for good IT workers in Brazil is their level of knowledge of the English language.
+
+Generally I present some random unix "man" page and ask some tricky questions about it. Good candidates will nail it.
+
+## Learning capacity
+
+i
 
 
 
