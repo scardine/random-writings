@@ -1,4 +1,11 @@
-# Geekness level interview questions
+# Interview Questions
+
+People always try to game the system. They have been doing it since their first year in school. That is why I think traditional interview questions may be misleading, specially for highly educated people.
+
+So I have my own set of unorthodox questions and personality metrics.
+
+
+## Geekness level
 
 Geeks are the best software engineers, period. 
 
@@ -23,7 +30,10 @@ deal of commitment - and the best employes are the ones who are able to commit.
 
  * If you could be a superhero, which one would you pick and why?
  
-A real geek will talk a lot here. I like people that prefer Marvel over DC comics.
+A real geek will talk a lot here, and I would be suspicious of a candidate that is not into comics. Marvel and DC comics are big fanchises, and both seems to attract very distinct groups of personalities. I like to work with people that picks a Marvel character.
+
+
+
 
 
 
