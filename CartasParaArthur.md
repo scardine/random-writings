@@ -10,9 +10,9 @@ completar 2 anos de idade. Então a razão de ser deste texto: escrever uma cart
 365 cartas, embarco nessa aventura.
 
 Por que escrever estas cartas antes de viajar? A primeira razão é que durante toda a vida senti falta de ter um pai
-para me aconselhar. Briguei com meu pai quando tinha 13 anos e nunca mais falei com ele desde então. E mesmo que
+para me aconselhar. Briguei com meu pai quando tinha 13 anos desde então nunca mais falei com ele. E mesmo que
 tivéssemos contato, não estou seguro de que receberia bons conselhos. Meu pai sempre me pareceu um homem emasculado,
-alguém que tem uma atitude covarde perante a vida. O tipo de pessoa que vez por outra me diz coisas como "Pelo menos 
+alguém com uma atitude covarde perante a vida. O tipo de pessoa que vez por outra me diz coisas como "Pelo menos 
 75% dos acidentes de trânsito graves, que terminam em mortes ou internações, envolvem motociclistas" ou que "o número 
 e acidentes fatais é 26 vezes maior em uma moto do que em um carro". OK, pilotar uma motocicleta é muito mais perigoso 
 que dirigir um carro. Eu sei disso! Mas eu não ando de moto por causa do perigo, eu faço isso **apesar** do perigo.
