@@ -19,7 +19,7 @@ que dirigir um carro. Eu sei disso! Mas eu não ando de moto por causa do perigo
 
 Então meu primeiro conselho para você é: **viva plenamente a sua vida**. Não deixe de fazer o que quer por causa dos riscos,
 você pode executar com segurança as maiores aventuras do mundo se tiver cuidado e responsabilidade. 
-Viver de outra forma não é viver, é secar deixar a alma secar aos poucos. Eu ví seu avô secar, sempre arranjando
+Viver de outra forma não é viver, é deixar a alma secar aos poucos. Eu ví seu avô secar, sempre arranjando
 desculpas para nem tentar: é muito difícil, é arriscado, já passei da idade, não tenho condições, eu isso ou aquilo.
 Um homem inteligente e talentoso que viveu uma vida triste e muito aquém do que poderia ter vivido, em todos os
 sentidos. Ao longo da vida você reconhecerá pessoas assim, vítimas da auto-sabotagem. Você pode ser o homem que
