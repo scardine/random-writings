@@ -18,13 +18,13 @@ e acidentes fatais é 26 vezes maior em uma moto do que em um carro". OK, pilota
 que dirigir um carro. Eu sei disso! Mas eu não ando de moto por causa do perigo, eu faço isso **apesar** do perigo.
 
 Então meu primeiro conselho para você é: **viva plenamente a sua vida**. Não deixe de fazer o que quer por causa dos riscos,
-você pode executar com segurança as maiores aventuras do mundo se tiver cuidado e responsabilidade. 
-Viver de outra forma não é viver, é deixar a alma secar aos poucos. Eu ví seu avô secar, sempre arranjando
-desculpas para nem tentar: é muito difícil, é arriscado, já passei da idade, não tenho condições, eu isso ou aquilo.
-Um homem inteligente e talentoso que viveu uma vida triste e muito aquém do que poderia ter vivido, em todos os
-sentidos. Ao longo da vida você reconhecerá pessoas assim, vítimas da auto-sabotagem. Você pode ser o homem que
-escolher e pode conquistar aquilo que desejar - pode não ser fácil, mas deixemos as desculpas e as coisas fáceis 
-para os covardes.
+você pode executar com segurança as maiores aventuras do mundo se tiver cuidado e responsabilidade. Pegue a vida
+pelos colarinhos, sacuda e olhe-a nos olhos. Viver de outra forma não é viver, é deixar a alma secar aos poucos. 
+Eu ví seu avô secar, sempre arranjando desculpas para nem tentar: é muito difícil, é arriscado, já passei da idade, 
+não tenho condições, isso não dá certo para mim, eu isso ou aquilo. Um homem inteligente e talentoso que viveu uma 
+vida triste e muito aquém do que poderia ter vivido, em todos os sentidos. Ao longo da vida você reconhecerá 
+pessoas assim, vítimas da auto-sabotagem. Você pode ser o homem que escolher e pode conquistar aquilo que desejar - 
+pode não ser fácil, mas deixemos as desculpas e as coisas fáceis para os covardes.
 
 Daqui a um ano pretendo embarcar nessa aventura, que sem dúvida é perigosa. E se me acontecer alguma coisa que me
 impeça de estar ao seu lado para dar conselhos quando precisar, ao menos saiba disso: eu te amo muito e me preocupei
