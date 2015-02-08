@@ -33,6 +33,26 @@ Tenho esperança que elas te ajudem a colocar a sua própria vida em perspectiva
 tomar decisões importantes.
 
 
+## Carta 2: Escolha suas batalhas
+
+Na ultima carta falei sobre ter coragem. É importante ter coragem, mas também é importante saber que nem todas as
+lutas valem a pena. As vezes é preciso ter coragem de virar as costas e deixar um provocador falando sozinho.
+
+Eu vou da moto ao trabalho diariamente, e nem um dia se passa sem tomar algum susto com veículos maiores. Alguns
+motoristas são incompetentes, outros são irresponsáveis e outros são simplesmente maldosos. Mas para uma motocicleta
+nunca vale a pena entrar em conflito com um veículo maior pois a moto estará sempre em grande desvantagem - dai
+o ditado em inglês: "drop a gear and desapear", ou seja, "reduza a marcha e desapareça".
+
+Na vida você vai se envolver em conflitos, escolha cuidadosamente aqueles que valem a pena. Em primeiro lugar,
+quando dois leões brigam, o mais forte vence, mas dificilmente sai sem nenhum machucado. Em segundo lugar, nunca
+é bom deixar inimigos pela vida - evite queimar pontes, nunca se sabe quando pode ser necessário cruzar de volta.
+
+Quando alguém fizer um comentário indelicado, de uma desculpa e saia. Quando alguém fizer uma pergunta que te deixe
+desconfortável, olhe nos olhos e pergunte: por que quer saber? Finalmente, não responda a grosserias por escrito
+ou por telefone - sua resposta poderá ficar gravada para sempre e ser usada contra você depois.
+
+Se existe algo que me consumiu energia durante a vida foi lutar as batalhas erradas, então lute com coragem mas 
+escolha cuidadosamente quando lutar. 
 
 
 
