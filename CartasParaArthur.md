@@ -60,29 +60,30 @@ escolha cuidadosamente quando lutar.
 
 07/02/2015
 
-Já falei sobre coragem. Uma coisa que você deve saber sobre coragem é que coragem não é a ausência de medo. Coragem 
+Já falei sobre coragem. Uma coisa que você deve saber é que coragem não é a ausência de medo. Coragem 
 é fazer alguma coisa **apesar** do medo. Por exemplo, eu tenho coragem para andar de motocicleta todos os dias no
-trânsito caótico de São Paulo - isso não quer dizer que eu não tenhoa medo. Aliás, medo é uma coisa boa, o medo é o
-que te mantem vivo. Aprenda a conhecer e lidar com o próprio medo e com o medo dos outros.
+trânsito caótico de São Paulo - isso não quer dizer que eu não tenho medo. Aliás, medo é uma coisa boa, o medo é o
+que te mantem vivo. Aprenda a conhecer e lidar com o próprio medo e com o medo dos outros. Porque medo e 
+agressividade costumam andar de mãos dadas.
 
 Quando você percebe um perigo, o corpo injeta na corrente sanguínea um monte do hormônio chamado adrenalina. Este 
 hormônio te prepara para lutar ou fugir (fight or flight) - mas se tem uma coisa que a adrenalina não faz é deixar alguém
 mais inteligente. O interessante da adrenalina é que não precisa ser um perigo ou uma dor real. Existem pessoas que 
 passam o tempo todo "adrenados", o que é muito cansativo para o corpo e causa os sintomas do "stress". Para mim,
 o "stress" se manifesta através de alergias na pele, os sintomas sempre desaparacem quando consigo relaxar. Aprenda
-a identificar os sinais de "stress", o corpo costuma "avisar".
+a identificar os sinais de "stress", o corpo costuma "avisar". 
 
-Evite fazer qualquer coisa quando estiver de "cabeça quente" exceto talvez algum exercício físico: 
-gosto de pensar que ajuda a "gastar" a adrenalina, mas no fundo acho que só ajuda a respirar melhor. Aliás, limpar
-a mente e respirar calma e profundamente é algo muito bom para fazer quando estiver chateado ou ansioso. Pratique
-exercícios de respiração e meditação.
+Evite fazer qualquer coisa quando estiver de "cabeça quente" exceto talvez algum exercício físico: gosto de pensar 
+que ajuda a "gastar" a adrenalina, mas no fundo acho que só ajuda a respirar melhor. Aliás, limpar a mente e respirar 
+calma e profundamente é algo muito bom para fazer quando estiver chateado ou ansioso. Aprenda e pratique exercícios 
+de respiração e meditação.
 
 
 ## Carta 4: Equilibrio
 
 08/02/2015
 
-Alguns anos atrás, algumas pessoas se reuniram em um templo budista em Cotia/SP para fazer uma "limpeza espiritual",
+Alguns anos atrás na cidade de Cotia, um grupo se reuniu num templo budista para fazer uma "limpeza espiritual",
 que consistia em jejuar e ingerir grandes quantidades de água durante o final de semana. Alguns deles terminaram no
 hospital e quase morreram de overdose de água. Sim, até água tem overdose! É chamada de hiponatremia: do grego hypo 
 (abaixo) e do latin natrium (sódio), significa ter um nível baixo de sódio no sangue - se você beber água em demasia
