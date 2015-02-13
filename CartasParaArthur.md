@@ -186,8 +186,10 @@ ou menos inteligente, mas saiba que isso pode limitar a sua velocidade de cruzei
 as pessoas mais inteligentes e espertas que puder encontrar.
 
 Existe um ditado que diz que passarinho que anda com morcegos acorda de cabeça para baixo. Evite andar com pessoas que
-violam acintosamente as regras - a maioria das regras existe por algum motivo sensato, cedo ou tarde estas pessoas sofrerão
-as consequencias de seus atos. Não digo que você precise obedecer cegamente todas as regras, as vezes é necessário desobedecer uma regra injusta (isso se chama desobediência civil), mas se tiver que faze-lo que seja o mais discretamente possível e apenas se não houver outro recurso.
+violam acintosamente as regras - a maioria das regras existe por algum motivo sensato, cedo ou tarde estas pessoas 
+vâo se meter em confusão e sofrerão as consequencias de seus atos. Não digo que você precise obedecer cegamente todas 
+as regras, as vezes é necessário desobedecer uma regra injusta (isso se chama desobediência civil), mas se tiver que 
+faze-lo que seja o mais discretamente possível e apenas se não houver outro recurso.
 
 ## Carta 10: Garupas
 
