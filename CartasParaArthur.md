@@ -117,3 +117,40 @@ Por isso as lições de hoje são:
     significa ter uma vida feliz. 
  - lição número 3: a capacidade de tomar boas decisões é algo que precisa ser cultivado diariamente, a vida toda.
 
+# Carta 6: Curta a viagem
+
+10/02/2015
+
+Quando viajo de moto e paro no centro de alguma cidade pequena, é comum que a moto logo fique certada por um grupo de meninos. Quase sem exceção, a primeira pergunta que me fazem é algo como: "Tio, quantos km/h ela corre?". Por ai se nota
+que qualquer menino quer correr o mais rápido que puder.
+
+Para mim a vida é como uma viagem. Quando eu era jovem, viajava a vida à toda velocidade. Pegava mil coisas para fazer ao mesmo tempo, queria trabalhar, estudar, dar aulas, ser sócio de um bar com música ao vivo, ser pai, marido, tudo ao 
+mesmo tempo. Demorei um pouco para me dar conta de que quanto mais rápido você viaja, mais rápido chega ao destino - 
+e todo mundo sabe qual é o ponto final da estrada da vida. Hoje, prefiro andar mais devagar e curtir um pouco mais a
+própria estrada, observar mais a paisagem, apreciar a viagem.
+
+Qualquer menino sabe correr como louco, é preciso maturidade para aprender a andar mais devagar e apreciar a viagem.
+
+# Carta 7: A vida é como uma motocicleta
+
+11/02/2015
+
+A vida é como uma motocicleta, se você soltar ela cai. Como uma motocicleta, enquanto você estiver em movimento é
+fácil manter o equilíbrio, mas se ficar parado terá que segurar todo o peso dela. Se tiver que escolher entre ficar
+parado e andar, pode escolher qualquer opção, mas andar será sempre mais fácil. É claro, você pode estacionar a moto
+e não fazer força - as vezes é preciso parar para descansar. Mas não deixe sua vida parada muito tempo ou a bateria
+vai descarregar (e as vezes até estragar de vez). É preciso andar um pouco de vez em quando para recarregar a bateria.
+
+Para andar você precisa de combustível (recursos). Muitas motos não tem um medidor de combustível, em vez disso
+tem uma torneira que tem 3 posições: fechada, normal e reserva. Você sai andando, o motor começa a falhar e você
+vira a chave para a posição "reserva", então sabe que tem apenas mais 3 ou 4 litros e precisa procurar logo um 
+posto de gasolina. Já me aconteceu da moto começar a falhar, e quando eu fui trocar a chave percebi que já estava
+na reserva: é a famosa pane seca. Se ficar sem gasolina, vai ter que empurrar a moto - acredite, não será fácil.
+
+A lição de hoje é: não fique muito tempo estacionado e tenha sempre uma reserva.
+
+# Carta 8: 
+
+12/02/2015
+
+
