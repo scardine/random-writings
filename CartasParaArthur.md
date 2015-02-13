@@ -117,7 +117,7 @@ Por isso as lições de hoje são:
     significa ter uma vida feliz. 
  - lição número 3: a capacidade de tomar boas decisões é algo que precisa ser cultivado diariamente, a vida toda.
 
-# Carta 6: Curta a viagem
+## Carta 6: Curta a viagem
 
 10/02/2015
 
@@ -131,7 +131,7 @@ própria estrada, observar mais a paisagem, apreciar a viagem.
 
 Qualquer menino sabe correr como louco, é preciso maturidade para aprender a andar mais devagar e apreciar a viagem.
 
-# Carta 7: A vida é como uma motocicleta
+## Carta 7: A vida é como uma motocicleta
 
 11/02/2015
 
@@ -149,7 +149,7 @@ na reserva: é a famosa pane seca. Se ficar sem gasolina, vai ter que empurrar a
 
 A lição de hoje é: não fique muito tempo estacionado e tenha sempre uma reserva.
 
-# Carta 8: Prepare-se
+## Carta 8: Prepare-se
 
 12/02/2015
 
@@ -170,7 +170,7 @@ ele anda, se soltar a moto ela cai. Já levei alguns tombos mas nunca me machuqu
 equipamentos de proteção. Nas aventuras da vida, você deve se preparar. Estude, leia tudo que puder sobre o assunto
 antes de sair fazendo - é melhor aprender com os erros dos outros do que com os próprios.
 
-# Carta 9: Companheiros de Viagem
+## Carta 9: Companheiros de Viagem
 
 13/02/2015
 
@@ -189,7 +189,7 @@ Existe um ditado que diz que passarinho que anda com morcegos acorda de cabeça 
 violam acintosamente as regras - a maioria das regras existe por algum motivo sensato, cedo ou tarde estas pessoas sofrerão
 as consequencias de seus atos. Não digo que você precise obedecer cegamente todas as regras, as vezes é necessário desobedecer uma regra injusta (isso se chama desobediência civil), mas se tiver que faze-lo que seja o mais discretamente possível e apenas se não houver outro recurso.
 
-# Carta 10: Garupas
+## Carta 10: Garupas
 
 14/02/2015
 
