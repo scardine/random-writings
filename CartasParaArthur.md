@@ -149,8 +149,47 @@ na reserva: é a famosa pane seca. Se ficar sem gasolina, vai ter que empurrar a
 
 A lição de hoje é: não fique muito tempo estacionado e tenha sempre uma reserva.
 
-# Carta 8: 
+# Carta 8: Prepare-se
 
 12/02/2015
 
+Quando você vai sair com a motocicleta, precisa se preparar. Vestir o capacete, jaqueta, calçar as botas, luvas, etc.
+(eu também uso uma calça jeans com proteção no joelho, quadril e um revestimento interno de kevlar). Em inglês existe
+a sigla ATGATT (all the gear all the time) que significa usar o equipamento completo o tempo todo.
+
+Você verá muitas pessoas andando de moto sem nenhuma proteção exceto o capacete, e ainda assim porque o capacete é
+obrigatório. Vão alegar qualquer motivo - é incômodo, está calor, assim por diante. Um amigo que é piloto de helicópteros
+uma vez me disse que helicópteros foram feitos para cair, aviões foram feitos para voar. Eu perguntei por que, e ele me
+contou que quando estava fazendo aulas de vôo por instrumentos, o instrutor apontou para o indicador de inclinação
+no painel e o Kaufman percebeu que estava voando de lado; assustado ele perguntou: o que eu faço agora? O instrutor
+disse para soltar todos os comandos, e o avião nivelou. Por isso ele dizia que o avião foi feito para voar, se você
+soltar todos os controles ele voa. No caso do helicóptero, se soltar todos os controles ele cai.
+
+Gosto de dizer que da mesma forma, um carro foi feito para andar, uma moto foi feita para cair. Se você soltar um carro
+ele anda, se soltar a moto ela cai. Já levei alguns tombos mas nunca me machuquei com gravidade, e devo isso aos
+equipamentos de proteção. Nas aventuras da vida, você deve se preparar. Estude, leia tudo que puder sobre o assunto
+antes de sair fazendo - é melhor aprender com os erros dos outros do que com os próprios.
+
+# Carta 9: Companheiros de Viagem
+
+13/02/2015
+
+É muito importante escolher bem seus companheiros de viagem. Quando saíamos em grupo, procurávamos agrupar as motos
+de acordo com o desempenho. Se uma das motos é significativamente mais lenta, ela é a moto que vai na frente para ditar 
+o ritmo - caso contrário ela poderia ficar para trás. Para quem tem motos rápidas é muito chato esperar motos mais lentas, 
+e para quem tem motos lentas pode ser estressante tentar acompanhar as motos mais rápidas.
+
+Uma vez viajei com um cara apelidado de X-óleo (ele tinha uma Honda XL 250 que vazava óleo por todo lado). A moto estava
+empéssimas condições e ele não conseguia andar a mais de 80km/h em uma rodovia onde a velocidade era 120km/h. Não preciso
+dizer que foi extremamente chato ter que andar devagar. Na vida, você pode andar com gente significativamente mais pobre 
+ou menos inteligente, mas saiba que isso pode limitar a sua velocidade de cruzeiro. Em vez disso, eu prefiro andar com
+as pessoas mais inteligentes e espertas que puder encontrar.
+
+Existe um ditado que diz que passarinho que anda com morcegos acorda de cabeça para baixo. Evite andar com pessoas que
+violam acintosamente as regras - a maioria das regras existe por algum motivo sensato, cedo ou tarde estas pessoas sofrerão
+as consequencias de seus atos. Não digo que você precise obedecer cegamente todas as regras, as vezes é necessário desobedecer uma regra injusta (isso se chama desobediência civil), mas se tiver que faze-lo que seja o mais discretamente possível e apenas se não houver outro recurso.
+
+# Carta 10: Garupas
+
+14/02/2015
 
