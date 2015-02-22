@@ -195,3 +195,15 @@ faze-lo que seja o mais discretamente possível e apenas se não houver outro re
 
 14/02/2015
 
+
+
+## Carta 11: Minha primeira moto
+
+15/02/2015
+
+Eu fui um garoto pobre, minha familia sequer possuia um automovel. Como a maioria dos adolecentes uma das coisas que mais
+ocupavam meu pensamento era me dar bem com as garotas. Sendo um garoto pobre isso não era muito fácil, em especial a
+maioria das garotas preveria evitar andar a pé ou usar transporte coletivo se pudessem. Quem pode culpa-las, é preciso estar
+muito apaixonado para achar uma viagem de onibus pode ser uma coisa romantica.
+
+Minha primeira moto foi uma Honda Turuna 125. 
