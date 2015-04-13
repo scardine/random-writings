@@ -32,7 +32,7 @@ We were the first team to be called on stage for the final pitch, and I panicked
 laptop but when the clock started, I looked back and the app was not in the screen yet so I forgot everything we 
 rehearsed before and totally screwed up (sorry for that, Eduardo).
 
-I would like to thank Eduardo for everything, Mastercard for hosting the event and everybody else I met there for being
+I would like to thank Eduardo for the partnership, Mastercard for hosting the event and everybody else I met there for being
 such a merry crowd.
 
 I have never felt so alive since when I heard my daughter cry for the first time (another great weekend).
