@@ -17,10 +17,10 @@ and mechanical keyboard. I was very envious of other teams that did this. On the
 programing can be very effective when you are paired with someone smart like Eduardo. 
 
 2. **A small team with focus can accomplish a lot:** we delivered a fully working application and a good looking one 
-considering we had no designer on our team. All other finalists were teams bigger teams with 4 or 5 members. 
+considering we had no designer on our team. All other finalists were bigger teams with 4 or 5 members. 
 Truth is we started with 5 people, but after a long brainstorming session It was clear for me that we would not
-be able to reconcile our visions, so I decided to leave and Eduardo joined me. In the end we celebrated our decision 
-- two guys left the competition, and other made a hilarious pitch without a demo (it was a PPT-free competition with 
+be able to reconcile our visions, so I decided to leave and Eduardo joined me. In the end we celebrated our decision - 
+two guys left the competition, and other made a hilarious pitch without a demo (it was a PPT-free competition with 
 mandatory product demo) and received a big nerf gun as consolation gift when he said he was abandoned
 by his teammates. Which leads us to the last lesson:
 
